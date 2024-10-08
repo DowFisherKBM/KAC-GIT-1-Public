@@ -255,7 +255,7 @@ I think we won, and that colleague received a bunch of money that was a huge sum
 
 During that time, I always thought: "Shenzhen the most developed place in the drone industry is reaching its end. There are not many places that can be trusted. Do I still have a chance to see the so-called manned multi-copter aircraft?"
 
-[ ](Finally have free time to order a maid dress!)
+[](https://Finally have free time to order a maid dress!)
 
 But at least, finally, everything is done. Although there're' sometimes scattered pilot tasks, my health status has gradually recovered and I have regained my interests in clothing and cooking. I have more time to chat and hang out with my former colleagues. I also went to Hong Kong for sightseeing again after the epidemic, but I still feel very uneasy about my economic situation.
 
