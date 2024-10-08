@@ -321,4 +321,4 @@ I feel that this is a new beginning, a huge progress for me and an important ste
 
 >“A set of brand new abandoned commercial drone found in a random garage yesterday afternoon.”
 
-（FIN）
+(FIN)
