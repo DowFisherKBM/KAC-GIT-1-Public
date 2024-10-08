@@ -160,7 +160,7 @@ Even though it's been a long time and I always had weak victories at the time, e
 
 This job was my second to last job. The mistake I made was that I was in a hurry and trusted people with backgrounds in DJI. Although they seemed to having interest on my personal ability, they were actually irresponsible to their employees, had a chaotic management of the company, operated the company in a deceptive way, and took advantage of various loopholes to achieve the goal of not paying for the workers.
 
-This is a small and developing company with various drone service projects. During this time, I met several interesting experts, studied automatic hangar systems and infrared detection technology, and traveled to a rural area for a while. At the same time, I tested and experimented with an original infrared camera and also returning to night flight tasks.
+This is a small and developing company with various drone service projects. During this time, I met several interesting experts, studied automatic hangar systems and infrared inspection technology, and traveled to a rural area for a while. At the same time, I tested and experimented with an original infrared camera and also returning to night flight tasks.
 
 >**KirisameGroup Library KBM Special Zone - Diary**  
 >**2021/11/26 17:19**  
